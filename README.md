@@ -26,3 +26,5 @@ If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immed
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
 
 ![meganight](https://github.com/sillyladdess/somedontknowhowtoread/blob/7d814daf9634b5632b18fc7ec0ae437fd86710aa/Untitled140_20260506221615.png)
+
+if the images look bad it is NOT my fault.
