@@ -1,4 +1,3 @@
-
 ![cheesestic](https://github.com/sillyladdess/somedontknowhowtoread/blob/cc4d36b965df67774de3d347e9cb6feeca4f08f5/Untitled140_20260506221605.png)
 ### Read this before following me, even if you are a spam account.
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
@@ -26,4 +25,4 @@ If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immed
 
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
 
-[meganight](https://github.com/sillyladdess/somedontknowhowtoread/blob/7d814daf9634b5632b18fc7ec0ae437fd86710aa/Untitled140_20260506221615.png)
+![meganight](https://github.com/sillyladdess/somedontknowhowtoread/blob/7d814daf9634b5632b18fc7ec0ae437fd86710aa/Untitled140_20260506221615.png)
