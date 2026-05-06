@@ -13,7 +13,7 @@ What would I recommend you do to interact with me? Well if I'm in the bakery or 
 ### mega bluntness
 If you decide that reading all my strawpages is too tiring for your brain and jump in to interact with me or follow me WITH A CERTAIN STANCE I'M IN ON YOUR DNI, expect me to block you at first sight.
 
-If you have friends or you follow people that have 
+If you have friends or you follow people that have a certain stance I believe in in their DNI, expect me to block you at first sight.
 
 Do not expect me to be up for debate about my stances. These are as refined and simple to understand as a metal nail in a wall. If you want to debate and not be unintentionally ragebaited, [rékaraven](https://github.com/rekaraven) is at your disposal.
 
