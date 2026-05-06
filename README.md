@@ -1,4 +1,4 @@
-![cheesestic]()
+![cheesestic](https://github.com/sillyladdess/somedontknowhowtoread/blob/7d814daf9634b5632b18fc7ec0ae437fd86710aa/Untitled140_20260506221615.png)
 ### Read this before following me, even if you are a spam account.
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
 
