@@ -4,14 +4,14 @@ If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https:
 
 ### For PT
 
-I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone, **ESPECIALLY IF YOU RUN UP TO ME FOR NO REASON OTHER THAN TO FORCE ME TO TALK TO YOU**.
+I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone, **especially if you run up to me for no other reason other than to talk to you**.
 
 If you want to get in touch with me, I'd recommend you don't walk up to me directly , as I'm not willing to interact at first sight. This is increased when you enter my personal space (hugging, cuddling, hiding), even if you do it for the lulz or for trolling. I'm also not open to talk to when I'm near my friends, you can talk to them instead of me.
 
 What would I recommend you do to interact with me? Well if I'm in the bakery or in the ch place you can boop me a few times to get my attention, where I would stare at you menacingly. At that point, under 3 seconds must you initiate your conversation, or otherwise I will walk away from you.
 
 ### mega bluntness
-If you decide that reading all my strawpages is too tiring for your brain and jump in to interact with me or follow me WITH A CERTAIN STANCE I'M IN ON YOUR DNI, expect me to block you at first sight.
+If you decide that reading all my strawpages is too tiring for your brain and jump in to interact with me or follow me with a certain stance I'm in on your dni, expect me to block you at first sight.
 
 If you have friends or you follow people that have a certain stance I believe in in their DNI, expect me to block you at first sight.
 
