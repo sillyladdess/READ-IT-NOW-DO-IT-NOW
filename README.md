@@ -40,4 +40,4 @@ I'm not willing to share what I create with you. I'm not willing to draw or crea
 
 If you come up first as a troll, expect me to never care about you or your feelings. I may be an [INFP](https://www.16personalities.com/infp-personality), but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH)
 
-
+My boundaries are very VERY concrete. If you walk over them I will block you
