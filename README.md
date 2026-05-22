@@ -28,6 +28,9 @@ If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immed
 
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
 
+Another thing, these two skins are exclusively used for trolling. If you see me say "Oh look an advocate for censorship!" or "Huh!? You support pedophiles!?" to you while you either harass me or hit me you played yourself 
+
+(wip)
 
 ### mega bluntness
 If you decide that reading all my strawpages is too tiring for your brain and jump in to interact with me/friend me or follow me with a certain stance I'm in on your dni, expect me to block you at first sight.
