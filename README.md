@@ -4,10 +4,15 @@ If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https:
 Descriptors I use :
 
 (❌💬)DNI - do not interact 
+
 (✅💬)FFTI - feel free to interact 
+
 (❌🗯️)NOFD - not open for discussion
+
 (👹😈)Tr - troll
+
 (👹😈)HWYS - harassment when you sneeze 
+
 (🪦🕊️)DDDNE - dead dove do not eat (used commonly when I used a more "problematic" skin)
 
 ### For PT
