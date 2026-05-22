@@ -1,6 +1,13 @@
 ### Read this before following me, even if you are a spam account.
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
 
+
+### For PT
+
+I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone, **especially if you run up to me for no other reason other than force me to talk to you**.
+
+If you want to get in touch with me, I'd recommend you don't walk up to me directly , rather a quick whisper will do. And if you want to actually chat with me in public chat do NOT do it if I have something like "DNI" or "NOFD" in my name.
+
 Descriptors I use :
 
 (❌💬)DNI - do not interact 
@@ -14,12 +21,6 @@ Descriptors I use :
 (👹😈)HWYS - harassment when you sneeze 
 
 (🪦🕊️)DDDNE - dead dove do not eat (used commonly when I used a more "problematic" skin)
-
-### For PT
-
-I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone, **especially if you run up to me for no other reason other than force me to talk to you**.
-
-If you want to get in touch with me, I'd recommend you don't walk up to me directly , rather a quick whisper will do. And if you want to actually chat with me in public chat do NOT do it if I have something like "DNI" or "NOFD" in my name.
 
 ### General
 
