@@ -22,15 +22,15 @@ Descriptors I use :
 
 (🪦🕊️)DDDNE - dead dove do not eat (used commonly when I used a more "problematic" skin)
 
+Another thing, these two skins are exclusively used for trolling. If you see me say "Oh look an advocate for censorship!" or "Huh!? You support pedophiles!?" to you while you either harass me or hit me you played yourself 
+
+![meganight](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIdgaf-its-boop-lie-blinking-name-padded-6x.gif)![MEGANIGHT](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIgaf-itis-lie-blinking-name-padded-6x.gif)
+
 ### General
 
 If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immediately. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I also avoid following accounts with no ``DNI`` listed to avoid being dragged into unnecessary drama. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are.
 
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
-
-Another thing, these two skins are exclusively used for trolling. If you see me say "Oh look an advocate for censorship!" or "Huh!? You support pedophiles!?" to you while you either harass me or hit me you played yourself 
-
-![meganight](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIdgaf-its-boop-lie-blinking-name-padded-6x.gif)![MEGANIGHT](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIgaf-itis-lie-blinking-name-padded-6x.gif)
 
 ### mega bluntness
 If you decide that reading all my strawpages is too tiring for your brain and jump in to interact with me/friend me or follow me with a certain stance I'm in on your dni, expect me to block you at first sight.
