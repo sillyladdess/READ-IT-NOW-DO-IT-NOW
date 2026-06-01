@@ -22,7 +22,7 @@ Descriptors I use :
 
 (🪦🕊️)DDDNE - dead dove do not eat (used commonly when I used a more "problematic" skin)
 
-Also, This is Ăcirf. He's a freaky lad and he's very happy to let you explore your sexuality with him. You can cuddle while I have this skin on.
+Also, This is my oc, Ăcird. He's a freaky lad. You can cuddle while I have this skin on.
 
 ![teranight](https://github.com/sillyladdess/sillyladdess/blob/cfb1930c98195d859a7ea2c07a9bec7c1befc078/pony-town-Ya-%20%C4%82cirf%20_%20oc%20_%20HWYS-lie-blinking-padded-4x.gif)
 
