@@ -30,7 +30,7 @@ Make sure to read the [conditions and interests](https://whyism.carrd.co/) when 
 
 Another thing, these two skins are exclusively used for trolling. If you see me say "Oh look an advocate for censorship!" or "Huh!? You support pedophiles!?" to you while you either harass me or hit me you played yourself 
 
-![MEGANIGHT](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIgaf-itis-lie-blinking-name-padded-6x.gif) ![meganight](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIdgaf-its-boop-lie-blinking-name-padded-6x.gif)
+![meganight](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIdgaf-its-boop-lie-blinking-name-padded-6x.gif)![MEGANIGHT](https://github.com/sillyladdess/READ-IT-NOW-DO-IT-NOW/blob/c95f222e1eed95ff66f0003cae55b2a8786bc071/pony-town---%20I'mSufferingFromIgaf-itis-lie-blinking-name-padded-6x.gif)
 
 ### mega bluntness
 If you decide that reading all my strawpages is too tiring for your brain and jump in to interact with me/friend me or follow me with a certain stance I'm in on your dni, expect me to block you at first sight.
