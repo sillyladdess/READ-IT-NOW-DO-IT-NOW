@@ -1,10 +1,10 @@
 ### Read this before following me, even if you are a spam account.
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
-
+I've seen plenty of spam accounts that interact with me while having a DNI for some reason... So I'll be blunt. **You being a spam account does NOT give you the right to interact with me at all if you have a DNI.** Mostly you're shooting yourself in the foot. As well as that people can't read apparently, and follow me while being in my DBIIYOTL.
 
 ### For PT
 
-I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone, **especially if you run up to me for no other reason other than force me to talk to you**.
+I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone that might not read my stuff, **especially if you run up to me like "HAIII HELLO HII I WANT TO BE FRIENDS WITH YOU UWU!!!"**.(I don't have an issue with people going uwu but something like that and I'll block you.)
 
 If you want to get in touch with me, I'd recommend you don't walk up to me directly , rather a quick whisper will do. And if you want to actually chat with me in public chat do NOT do it if I have something like "DNI" or "NOFD" in my name.
 
@@ -24,7 +24,7 @@ Descriptors I use :
 
 ### General
 
-If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immediately. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are.
+If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immediately. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I also avoid following accounts with no ``DNI`` listed to avoid being dragged into unnecessary drama. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are.
 
 Make sure to read the [conditions and interests](https://whyism.carrd.co/) when you feel like something's bugging in your brain when you stare at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/)
 
@@ -35,12 +35,12 @@ Another thing, these two skins are exclusively used for trolling. If you see me 
 ### mega bluntness
 If you decide that reading all my strawpages is too tiring for your brain and jump in to interact with me/friend me or follow me with a certain stance I'm in on your dni, expect me to block you at first sight.
 
-If you have friends or you follow people that have a certain stance I believe in in their DNI, expect me to block you at first sight.
+If you have friends or you follow people that have a certain stance I believe in in their DNI, expect me to block you at first sight. I don't want to cause an unnecessary drama and I don't want you to upset your friends just because you want to observe my characters from a friend's perspective.
 
 Do not expect me to be up for debate about my stances. These are as refined and simple to understand as a metal nail in a wall. If you want to debate and not be unintentionally ragebaited, [my friend](https://github.com/rekaraven) is at your disposal.
 
 I'm not willing to share what I create with you. I'm not willing to draw or create something for you unless we're getting married ([figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively))(I'm [figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively) married to [rékaraven](https://github.com/rekaraven).)
 
-If you come up first as a troll, expect me to never care about you or your feelings. I may be an [INFP](https://www.16personalities.com/infp-personality), but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH)
+If you come up first as a troll, expect me to never care about you or your feelings. I may be an [INFP](https://www.16personalities.com/infp-personality), but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH) I don't like ragebaiters who come up out of nowhere and harass me when I myself do not have a troll skin.
 
-My boundaries are very VERY concrete. If you walk over them I will block you
+My boundaries are very VERY concrete. If you walk over them I will block you. Unless you're an **ACTUAL** friend I will let you mildly scratch the line but go further and you'll get ripped away.
