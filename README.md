@@ -8,6 +8,8 @@ I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very anti
 
 If you want to get in touch with me, I'd recommend you don't walk up to me directly , rather a quick whisper will do. And if you want to actually chat with me in public chat do NOT do it if I have something like "DNI" or "NOFD" in my name.
 
+If you can't give me something or you can't friend me, it's because I blocked you (either because you're in my DBIIYOTL or because you have no DNI. 
+
 Descriptors I use :
 
 (❌💬)DNI - do not interact 
@@ -21,6 +23,14 @@ Descriptors I use :
 (👹😈)HWYS - harassment when you sneeze 
 
 (🪦🕊️)DDDNE - dead dove do not eat (used commonly when I used a more "problematic" skin)
+
+Beware when trying to interact while I have this:
+
+🟢 - online 
+
+🌙 - afk/inactive
+
+⛔ - busy/with friends/don't interact
 
 Also, This is my oc, Ăcirf. He's a freaky lad. You can cuddle while I have this skin on.
 
